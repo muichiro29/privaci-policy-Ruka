@@ -1,2 +1,2 @@
-# privaci-policy-Ruka
-Politica de privacidad de Ruka
+# Politica de privacidad de Ruka
+
